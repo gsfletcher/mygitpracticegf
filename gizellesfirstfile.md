@@ -1,0 +1,1 @@
+i'm lowkey excited to learn code so that when i click atom dot, i have something to write in it that will actually do something. this coding class is already feeling like it's gonna be a rollercoaster, and i only completed the fourth class out of 60 yesterday. jesus be with me.
